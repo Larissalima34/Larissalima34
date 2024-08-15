@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on myself
 - 📫 How to reach me ...
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: i'm a little fun
+- ⚡ Fun fact: i'm a little funking boring
+  
 
 
